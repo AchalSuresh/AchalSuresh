@@ -3,4 +3,5 @@
 
 I am Data Enthusiast and passionate about learning new technologies and be part of a diverse, high-performing team that can make a difference
 
+My Github consists some of the projects that I have worked the past year, Hope you enjoy it!
 
